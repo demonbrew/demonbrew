@@ -6,4 +6,4 @@ I am a Cyber Security professional with over 25 years experience, as well as a H
 # Links
 Personal Landing Page [WaltBerstler.com](https://waltberstler.com)
 
-[LinkedIn] ([https://www.linkedin.com/in/wberstler/)
+LinkedIn Page [LinkedIn] ([https://www.linkedin.com/in/wberstler/)
